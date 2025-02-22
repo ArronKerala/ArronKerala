@@ -1,4 +1,4 @@
-# Hi there, I'm ArronKerala 👋
+# Hi there, I'm Aaron Swartz 👋
 
 I'm a passionate tech enthusiast who loves exploring the latest trends in technology and innovation. I'm always learning something new, and every challenge excites me.
 
